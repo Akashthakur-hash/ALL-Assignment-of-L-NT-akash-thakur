@@ -1,6 +1,6 @@
 # ALL-Assignment-of-L-NT-akash-thakur
 
-**Task-1 : choosing a product of my interest and exploring the product with my interference NAME OF THE PRODUCT : FAILURE OF BLACKBERRY PHONE
+**Task-1 : choosing a product of my interest and exploring the product with my interference NAME OF THE PRODUCT : NUWA PEN
 
 task-2 : Three applications with complex pronblems identified using different literatures.
 
